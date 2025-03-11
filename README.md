@@ -10,6 +10,6 @@
 
 ### 📬 Let's Connect  
 
-📧 **Email:** [VinayCharyVelpula@gmail.com](mailto:Vinaycharyvelpula@gmail.com)  
-📸 **Instagram:** [@VinayCharyVelpula](https://instagram.com/vinaycharyvelpula)  
-🔗 **LinkedIn:** [@VinayCharyVelpula](https://www.linkedin.com/in/vinaycharyvelpula)  
+📧 **Email:** [VinayVelpula03@gmail.com](mailto:Vinayvelpula03@gmail.com)  
+📸 **Instagram:** [@VinayCharyVelpula](https://instagram.com/velpulavinayy)  
+🔗 **LinkedIn:** [@VinayCharyVelpula](https://www.linkedin.com/in/velpulavinayy)  
